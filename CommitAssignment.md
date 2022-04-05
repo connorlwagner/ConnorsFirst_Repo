@@ -1,4 +1,11 @@
 # ConnorsFirst_Repo
 
-four was actually 5 
-haha
+I 
+Like 
+to 
+Eat 
+Eat
+Eat
+Apples 
+& 
+Bananas
